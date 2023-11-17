@@ -1,1 +1,0 @@
-# -htiyatl--sekiz-karnavalina
